@@ -5,7 +5,7 @@ inserção da marca FYS em padarias
 baseado no "COMBO MENOS CULPA", um 
 banner escrito algo do tipo:"SE VOCE 
 VAI COMER 800 CALORIAS DE UMA VEZ, PELO 
-MENOS O REFRI É PREMIUM E TEM 50% DE 
+MENOS O REFRI É PREMIUM E TEM 50% MENOS DE 
 AÇÚCAR. DE NADA."
 
 A introdução traz o contexto, com as 
